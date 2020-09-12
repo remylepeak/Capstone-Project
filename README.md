@@ -9,3 +9,4 @@ https://github.com/remylepeak/Capstone-Project/wiki/Potential-Project-%231
 https://github.com/remylepeak/Capstone-Project/wiki/Potential-Project-%232
 
 References Link
+https://github.com/remylepeak/Capstone-Project/wiki/College-Research-Resources
